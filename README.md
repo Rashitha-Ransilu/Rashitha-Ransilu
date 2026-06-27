@@ -1,6 +1,6 @@
 # Hi 👋, I'm Rashitha Ransilu
 
-### 🚀 Software Engineering Student
+### 🚀 Software Engineering Student @ CINEC campus
 
 - 📫 How to reach me **rashitharansilu7@gmail.com**
 
